@@ -15,6 +15,7 @@ If you remotely feel something, please watch this: https://www.youtube.com/watch
 - ⚡ ~~Weird~~ Fun fact is that I like tabletop RPGs.
 
 # And to finish
-![Trade Offer](https://media.tenor.com/q5U4tA8T1fUAAAAC/tradeoffer.gif 'Trade Offer')
-You get: a new follower
-I get: a new follower as well
+![Trade Offer](https://media.tenor.com/q5U4tA8T1fUAAAAC/tradeoffer.gif 'Trade Offer')\
+**You get**: a new follower\
+**I get**: a new follower as well\
+What do you say?
