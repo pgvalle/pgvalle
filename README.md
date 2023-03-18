@@ -10,7 +10,9 @@ If you remotely feel something, please watch this: https://www.youtube.com/watch
 - 👯 looking to collaborate on whatever cool project surrounded by nice people.
 - 🤔 looking for help on how to live. It's hard...
 - 💬 Ask me about whatever you feel like to ask. Let's have a nicetalk. 
-- 📫 Wanna talk??? Well... There's always the good old e-mail. And you can also contact me on discord. My hashtag is #3080.
+- 📫 Wanna talk??? 🤩
+  - e-mail: pgvalle.nogueira@gmail.com
+  - discord hashtag: #3080
 - ⚡ ~~Weird~~ Fun fact about me is that I like tabletop RPGs.
 
 ## ⚠️**TRADE OFFER**⚠️
