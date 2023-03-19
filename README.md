@@ -5,11 +5,11 @@ Give him the chance. Give yourself the chance!
 If you remotely feel something, please watch this: https://www.youtube.com/watch?v=ZXqQGuAt7SE. It's just 3 minutes long.
 
 ## About me
-- 🔭 currently working on some my own projects when I can.
+- 🔭 currently working on some of my own projects when I can.
 - 🌱 learning Django, Databases and SQL. Not counting the classes.
 - 👯 looking to collaborate on whatever cool project surrounded by nice people.
 - 🤔 looking for help on how to live. It's hard...
-- 💬 Ask me about whatever you feel like to ask. Let's have a nicetalk. 
+- 💬 Ask me about whatever you feel like to ask. Let's have a nice talk. 
 - 📫 Wanna talk??? 🤩
   - e-mail: pgvalle.nogueira@gmail.com
   - discord hashtag: #3080
