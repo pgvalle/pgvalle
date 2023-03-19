@@ -12,7 +12,7 @@ If you remotely feel something, please watch this: https://www.youtube.com/watch
 - 💬 Ask me about whatever you feel like to ask. Let's have a nice talk. 
 - 📫 Wanna talk??? 🤩
   - e-mail: pgvalle.nogueira@gmail.com
-  - discord hashtag: #3080
+  - discord: pgvalle#3080
 - ⚡ ~~Weird~~ Fun fact about me is that I like tabletop RPGs.
 
 ## ⚠️**TRADE OFFER**⚠️
