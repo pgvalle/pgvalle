@@ -11,7 +11,7 @@ If you remotely feel something, please watch this: https://www.youtube.com/watch
 - 💬 Ask me about whatever you feel like to ask. Let's have a nice chat! Here is my discord: pgvalle#3080
 - ⚡ ~~Weird~~ Cool fact about me is that I like tabletop RPGs.
 
-## ⚠️**TRADE OFFER**⚠️
+## ⚠️ **TRADE OFFER** ⚠️
 **I receive**: a new follower\
 **You receive**: a new follower as well\
 ![Trade Offer](https://media.tenor.com/KkZwKl2AQ2QAAAAM/trade-offer.gif 'Trade Offer')
