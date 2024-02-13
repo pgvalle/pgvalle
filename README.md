@@ -5,8 +5,8 @@ Give him the chance. Give yourself the chance!
 If you remotely feel something, please watch this: https://www.youtube.com/watch?v=ZXqQGuAt7SE. It's just 3 minutes long.
 
 ## About me
-- 🔭 currently working on some of my own projects when I can.
-- 🌱 learning Django, Databases and SQL. Not counting the classes.
+- 🔭 currently I'm a scholar at Brazil's National Institute of Technology (INT): https://www.gov.br/int/pt-br
+- 🌱 Learning automation, eletronics and networks.
 - 🤔 looking for help on how to live. It's hard...
 - 💬 Ask me about whatever you feel like to ask. Let's have a nice chat! Here is my discord: pgvalle#3080
 - ⚡ ~~Weird~~ Cool fact about me is that I like tabletop RPGs.
