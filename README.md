@@ -8,7 +8,7 @@ If you remotely feel something, please watch this: https://www.youtube.com/watch
 - 🔭 currently I'm a scholar at Brazil's National Institute of Technology (INT): https://www.gov.br/int/pt-br
 - 🌱 Learning automation, eletronics and networks.
 - 🤔 looking for help on how to live. It's hard...
-- 💬 Ask me about whatever you feel like to ask. Let's have a nice chat! Here is my discord: pgvalle#3080
+- 💬 Ask me about whatever you feel like to ask. Let's have a nice chat! Here is my discord: p3dr0n
 - ⚡ ~~Weird~~ Cool fact about me is that I like tabletop RPGs.
 
 ## ⚠️ **TRADE OFFER** ⚠️
