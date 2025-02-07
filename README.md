@@ -10,8 +10,3 @@ If you remotely feel something, please watch this: https://www.youtube.com/watch
 - 🤔 looking for help on how to live. It's hard...
 - 💬 Ask me about whatever you feel like to ask. Let's have a nice chat! Here is my discord: p3dr0n
 - ⚡ ~~Weird~~ Cool fact about me is that I like tabletop RPGs.
-
-## ⚠️ **TRADE OFFER** ⚠️
-**I receive**: a new follower\
-**You receive**: a new follower as well\
-![Trade Offer](https://media.tenor.com/KkZwKl2AQ2QAAAAM/trade-offer.gif 'Trade Offer')
